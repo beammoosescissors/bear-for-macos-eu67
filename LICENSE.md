@@ -1,4 +1,4 @@
-
+premium Tool for Bear for macOS - voice notes and custom shortcuts is the best Bear for macOS tool, featuring voice notes and custom shortcuts. Safe, efficient, and optimized for
 
 
 
